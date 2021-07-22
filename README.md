@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Rappidtheair
+- 👀 I’m interested in Program
+- 🌱 I’m currently learning Scratch
+- 📫 How to reach me=friend discord Beluga#4038
